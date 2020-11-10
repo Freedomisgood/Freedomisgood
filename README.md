@@ -2,7 +2,6 @@
 
 ### 👋Hi, This is me.
 
-I’m currently learning and learning...🌱
-
-
-
+- I’m currently learning and learning... :satisfied:
+- To become better and better... :ok_woman:
+- Let's Go, Let's Go... :dancer:
